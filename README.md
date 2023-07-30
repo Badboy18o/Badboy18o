@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Badboy18o aka Dhruv.
 - 👀 I’m interested in Coding.
-- 🌱 I’m currently learning to code with a very basi knowledge but high interest.
+- 🌱 I’m figuring out about how to code.
 - 📫 You can reach me at dhruvchandak7@gmail.com or at insta: @dhruv_c03 .
 
 
