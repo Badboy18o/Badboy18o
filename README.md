@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Badboy18o aka Dhruv.
+- 👋 Hi, I’m @DhruvChandak aka Dhruv.
 - 👀 I’m interested in Coding.
 - 🌱 I’m figuring out about how to code.
 - 📫 You can reach me at dhruvchandak7@gmail.com or at insta: @dhruv_c03 .
